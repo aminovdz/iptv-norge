@@ -1,7 +1,7 @@
 <p><em>Ansvarsfraskrivelse: Denne artikkelen er kun til informasjonsformål. Sørg for at du følger lokale lover
         vedrørende strømmetjenester. Bruk alltid en VPN for personvern på nett.</em></p>
 
-<img src="https://8upload.com/image/257e67e01cefa2fa/tier2_image_1_1777323961113.png"
+<img src="https://8upload.com/image/9214edf4205aa720/tier2_image_1_1777323961113.webp"
     alt="Slik får du den optimale opplevelsen av iptv norge for sport og fotball i 2026"
     style="width: 100%; border-radius: 8px; margin-bottom: 20px;" />
 
